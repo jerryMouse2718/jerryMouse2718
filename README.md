@@ -21,7 +21,7 @@
                 %@@@@@@@%%******-     ::.                      hanschristian.lorenzo@irc.pshs.edu.ph
                 #%%%@@@@@%******:   :=:                        jmouse2718@gmail.com
                 -%%@@@@@%#******-+-+:                          .
-                 +%@@@@%%*******:                              Conctact.Facebook --------------------------
+                 +%@@@@%%*******:                              Contact.Facebook ---------------------------
                  -+************=                               Hans Christian Lorenzo
                   :****-******=                                .
                    .=***=****-                                 Contact.Instagram --------------------------
